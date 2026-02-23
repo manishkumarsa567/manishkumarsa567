@@ -1,5 +1,6 @@
-# 💫 About Me:
-Learning Today, Building Tomorrow
+# 💫 Hi 👋, I'm Manish Kumar
+**Learning Today, Building Tomorrow**
+
 
 
 ## 🌐 Socials:
